@@ -1,1 +1,1 @@
-# Apresenta-o
+Sou João Vitor Pereira, eu nasci dia 01/01/2010, tenho uma cicatriz na apendice porque ela estourou quando mais novo, tenho 1,64M mudei recentemente para o jof (João de Oliveira Franco) sou do 1 ano e faz 1 ano que mudei para esta escola, tenho alguns amigos que são até gente boa porém algumas vezes repenso se devo realmente acompanhar eles, eu gosto de jogar COD no meus tempos livres principalmente de sexta até domingo, pois são os momentos que eu não preciso fazer tarefa tanto em casa quanto na escola.
